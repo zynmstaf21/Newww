@@ -1,4 +1,4 @@
-# Newww
+# Ziyan Musthofa
 Saya baru mulai perjalanan di github detik ini
 # Project Pertama
 
